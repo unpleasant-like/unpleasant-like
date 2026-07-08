@@ -1,3 +1,3 @@
 <img src="http://dl10.glitter-graphics.net/pub/1536/1536270oq0exux2r7.gif" width=456 height=441 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
-<a href="https://www.glitter-graphics.com"><img src="http://dl5.glitter-graphics.net/pub/1645/1645885a56ki813uy.gif" width=202 height=149 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+<img src="http://dl5.glitter-graphics.net/pub/1645/1645885a56ki813uy.gif" width=202 height=149 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
 ><img src="http://dl10.glitter-graphics.net/pub/1585/1585530iaoxjjxvje.gif" width=200 height=200 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
