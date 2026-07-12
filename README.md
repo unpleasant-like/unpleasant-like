@@ -4,7 +4,7 @@
 
 words soon
 
-[p align="center"][![atabook](Untitled152_20260710233354.png)](https://gigglemut.atabook.org/)[p align="center"]
+<p align="center">[![atabook](Untitled152_20260710233354.png)](https://gigglemut.atabook.org/)<p align="center">
 
 other words soon
 
