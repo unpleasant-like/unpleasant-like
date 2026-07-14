@@ -15,5 +15,3 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/fb2ede71-b354-4e6f-8e72-a33c80bc6364" width=100/><p align="center">
 
 ![banner](banner2ok.png)
-
-<about-myself>test:
