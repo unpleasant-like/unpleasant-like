@@ -16,4 +16,4 @@
 
 ![banner](banner2ok.png)
 
-<Details>No such object:
+<my pro͟bℓꫀms>No such object:
