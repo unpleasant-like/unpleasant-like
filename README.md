@@ -17,6 +17,6 @@
 ![banner](banner2ok.png)
 
 ![screenshot](me.jpeg)
-me and m party
+<p align="center">me and m party<p align="center">
 <br>
-not my other1 dude
+<p align="center">not my other1 dude<p align="center">
