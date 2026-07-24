@@ -19,4 +19,4 @@
 ![screenshot](me.jpeg)
 <p align="center">me and m party<p align="center">
 <br>
-<p align="center">not my other1 dude<p align="center">
+<p align="center">not my first1 dude<p align="center">
