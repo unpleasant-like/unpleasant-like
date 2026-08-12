@@ -21,8 +21,4 @@
 <br>
 <p align="center">old 1 was a good family to me tho<p align="center">
 
-<style>
-table table table td { vertical-align: top; !important; }
-span.blacktext12 { visibility: visible !important; background-image: url('http://dl10.glitter-graphics.net/pub/290/290280yd1agis40q.gif'); background-repeat: no-repeat; background-position: center center; background-color: transparent; font-size: 0px; letter-spacing: -0.5px; width: 435px; height: 75px; display: block !important; }
-span.blacktext12 img { display: none; }
-</style><br>
+[url=https://www.glitter-graphics.com][img]http://dl10.glitter-graphics.net/pub/290/290280yd1agis40q.gif[/img][/url]
