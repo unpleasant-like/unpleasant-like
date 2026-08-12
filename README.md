@@ -26,4 +26,4 @@
 
 <p align="center">for the people who still think im dating with nate/kyu<p align="center">
 
-  <p align="center">idfk dont blame or jump him for this pls<p align="center">
+  <p align="center">idfk dont hurt or jump him for this<p align="center">
