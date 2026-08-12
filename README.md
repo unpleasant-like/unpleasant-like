@@ -20,8 +20,8 @@
 <p align="center">me and m party<p align="center">
 <br>
 <p align="center">old 1 was a good family to me tho<p align="center">
-  
 <br>
+
 ![gif](290280yd1agis40q.gif)
 
 <p align="center">for the people who still think im dating with nate/kyu<p align="center">
