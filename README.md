@@ -16,10 +16,10 @@
 
 ![banner](banner2ok.png)
 
-![screenshot](me.jpeg)
-<p align="center">me and m party<p align="center">
+![screenshot](3c741d76537dc316685e5ae902e3a52c.jpg)
+<p align="center">me and m AWESOME party<p align="center">
 <br>
-<p align="center">old 1 was a good family to me tho<p align="center">
+<p align="center">old 1 was like a family 2 me<p align="center">
 <br>
 
 ![gif](290280yd1agis40q.gif)
