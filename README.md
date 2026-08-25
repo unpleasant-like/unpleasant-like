@@ -20,10 +20,3 @@
 <p align="center">me and m AWESOME party<p align="center">
 <br>
 <p align="center">old 1 was like a family 2 me<p align="center">
-<br>
-
-![gif](290280yd1agis40q.gif)
-
-<p align="center">for the people who still think im dating with nate/kyu<p align="center">
-
-  <p align="center">idfk dont hurt or jump him for this<p align="center">
