@@ -19,4 +19,4 @@
 ![screenshot](3c741d76537dc316685e5ae902e3a52c.jpg)
 <p align="center">oh what happend to us<p align="center">
 <br>
-<p align="center">what gone wrong ?..<p align="center">
+<p align="center">it is my all fault again?<p align="center">
