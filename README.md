@@ -17,6 +17,10 @@
 ![banner](banner2ok.png)
 
 ![screenshot](3c741d76537dc316685e5ae902e3a52c.jpg)
-<p align="center">oh what happend to us<p align="center">
+<p align="center">its always my fucking fault.<p align="center">
 <br>
-<p align="center">it is my all fault again?<p align="center">
+<p align="center">its always from my fucking BULLSHIT sensitivity.<p align="center">
+<br>
+<p align="center">i hate myself i have no talent to show. im so stupid<p align="center">
+<br>
+<p align="center">and theyre prob better w/out me anyways lol<p align="center">
