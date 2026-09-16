@@ -21,6 +21,6 @@
 <br>
 <p align="center">its always from my fucking BULLSHIT sensitivity.<p align="center">
 <br>
-<p align="center">i hate myself i have no talent to show. im so stupid<p align="center">
+<p align="center">i hate myself i have no talent. im so stupid<p align="center">
 <br>
 <p align="center">and theyre prob better w/out me there anyways lol.<p align="center">
