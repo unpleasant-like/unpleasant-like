@@ -10,8 +10,8 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Henny+Penny&duration=3400&pause=430&color=A33F01&center=true&width=340&height=35&lines=.+.+.+;Do+I+Creep+You+Out+%3F" alt="Typing SVG" /></a>
 
-<img src="https://github.com/user-attachments/assets/28a92838-15cf-4cfe-b607-4cff9b517edb"/>
-
 ![unpleasant](ezgif-8d0e92a5d22b9896.gif)
+
+<img src="https://github.com/user-attachments/assets/28a92838-15cf-4cfe-b607-4cff9b517edb"/>
 
 ![banner](banner2ok.png)
