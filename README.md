@@ -15,3 +15,6 @@
 <img src="https://github.com/user-attachments/assets/28a92838-15cf-4cfe-b607-4cff9b517edb"/>
 
 ![banner](banner2ok.png)
+oh well sorry for trying to change the person i was.
+<br>
+i fucking know what youre going to do.
