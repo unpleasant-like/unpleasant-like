@@ -15,6 +15,3 @@
 ![unpleasant](ezgif-8d0e92a5d22b9896.gif)
 
 ![banner](banner2ok.png)
-
-![screenshot](3c741d76537dc316685e5ae902e3a52c.jpg)
-<p align="center">just a faint memory of us together<p align="center">
